@@ -1,6 +1,6 @@
 top bun
-chicken
-eggs
+nuggets
+bluberries
 postcard from olympics
 borgor patty
 nom nom
