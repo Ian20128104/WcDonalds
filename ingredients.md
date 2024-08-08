@@ -1,7 +1,9 @@
 top bun
-chicken
-eggs
+nuggets
+bluberries
 postcard from olympics
-borgor patty
+carrors 
+banana
+chicken drumstick
 nom nom
 bottom bun
